@@ -1,6 +1,6 @@
 ## Hi there 👋, I'm Riya
 
-🎓 B.Tech Student | 🤖 Aspiring AI/ML Engineer  
+🎓 B.Tech | 🤖 Aspiring AI/ML Engineer  
 
 ---
 
